@@ -1,0 +1,1 @@
+So this is pretty straight forward. Just play through the campaign. Lieutenant difficulty recommended, because with your shield being a static stat enemies won't be able to deal much if any damage on the easier difficulties. Killing enemies gives experience which with every 50 exp increases your armor stat.
